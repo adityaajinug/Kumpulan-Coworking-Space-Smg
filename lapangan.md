@@ -31,7 +31,7 @@ kapasitas   : 33000\
 Kontak      : 081-436-4832 \
 Instagram   : stdjatidiri \
 Jam buka    :   Senin-Jum'at 08.00 AM- 05.30 PM, Sabtu Minggu libur \
-Apakah gratis :  Berbayar
+Apakah gratis: Iya
 =======
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcTX65pWSrqEj8kUGHAZOg-T5JIe5zK0q58gufF1cX8J4U0LZDFF" width="180px" align="left">
 
