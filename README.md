@@ -43,10 +43,10 @@ Kontak      : 0813-2980-0300 \
 Jam Buka    : Senin-Jumat: 09.00-23.00; Sabtu-Minggu: 08.00-16.00 \
 Personal atau Group Membership
 
-<img src="https://fastly.4sqi.net/img/general/600x600/6348045_PMI58D26I1nrUOxQnT_jy3BYzluyjf-s2TgLLw3la_I.jpg" height="180px" width="180px" align="left">
+<img src="https://www.google.com/maps/uv?hl=id&pb=!1s0x2e708610b2265ee3:0x9e73b6921981f4d8!2m22!2m2!1i80!2i80!3m1!2i20!16m16!1b1!2m2!1m1!1e1!2m2!1m1!1e3!2m2!1m1!1e5!2m2!1m1!1e4!2m2!1m1!1e6!3m1!7e115!4shttps://lh5.googleusercontent.com/p/AF1QipPS6oVI2gtuIRjWpgOQQvKG6p-zZqa5Wq8XvffN%3Dw260-h175-n-k-no!5stelkom+ungaran+-+Penelusuran+Google&imagekey=!1e10!2sAF1QipPS6oVI2gtuIRjWpgOQQvKG6p-zZqa5Wq8XvffN" height="180px" width="180px" align="left">
 
 **Telkom Ungaran** \
-Alamat      : Jl. Mpu Tantular No.2 Semarang (https://www.google.com/search?safe=strict&tbm=lcl&sxsrf=ACYBGNQB5i6R6LEDiX2XvvOd-PIKv1twcQ%3A1570936684947&ei=bJeiXfG5OdfZrQHMuoGgDA&q=telkom+ungaran&oq=telkom+ungaran&gs_l=psy-ab.3...2232.2232.1.2952.1.1.0.0.0.0.0.0..0.0....0...1c..64.psy-ab..1.0.0....0.WpBGq2xGSz8#rlfi=hd:;si:11417670218923767000;mv:[[-7.14951572268097,110.40908418772497],[-7.14987567731903,110.40872141227504]]) \
+Alamat      : Jl. Diponegoro No.255, Mijen, Gedanganak, Kec. Ungaran Tim., Semarang, Jawa Tengah 50519 (https://www.google.com/search?safe=strict&tbm=lcl&sxsrf=ACYBGNQB5i6R6LEDiX2XvvOd-PIKv1twcQ%3A1570936684947&ei=bJeiXfG5OdfZrQHMuoGgDA&q=telkom+ungaran&oq=telkom+ungaran&gs_l=psy-ab.3...2232.2232.1.2952.1.1.0.0.0.0.0.0..0.0....0...1c..64.psy-ab..1.0.0....0.WpBGq2xGSz8#rlfi=hd:;si:11417670218923767000;mv:[[-7.14951572268097,110.40908418772497],[-7.14987567731903,110.40872141227504]]) \
 Alamat web  : https://www.telkom.co.id \
 Kontak      : (024) 6922777 \
 Twitter     : https://twitter.com/telkomungaran/ \
